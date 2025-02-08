@@ -1,1 +1,1 @@
-# Akhsat Teri maa ki chut
+# Teri maa ki chut
